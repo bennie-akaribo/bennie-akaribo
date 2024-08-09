@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @bennie-akaribo
+- 👋 Hi, I’m Benedicta Essuon Akaribo
 - 👀 I’m interested in infectious disease ecology
-- 🌱 I’m currently a PhD student in integrative biology at the Oklahoma State University
+- 🌱 I’m currently a PhD student in integrative biology at the Oklahoma State University, OK, USA
 - 📫 You can reach me via: benedicta.akaribo@okstate.edu
 - 😄 Pronouns: She/Her/Hers
 
